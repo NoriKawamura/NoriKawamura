@@ -1,6 +1,6 @@
 - 👋 Hi there!, I’m @NoriKawamura <3
 - 
-- 👀 I’m currently interested in boosting my programming habilities! haha, and also i love games <3 
+- 👀 I’m currently interested in boosting my programming habilities! haha
 - 
 - 🌱 I’m currently learning phyton and C! (Foccusing on C right now) 
 - 
