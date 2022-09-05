@@ -1,0 +1,12 @@
+- 👋 Hi there!, I’m @NoriKawamura <3
+- 
+- 👀 I’m currently interested in boosting my programming habilities! haha, and also i love games <3 
+- 
+- 🌱 I’m currently learning phyton and C! (Foccusing on C right now) 
+- 
+- 💞️ I’m looking to collaborate on things that are within my reach as a student, hehe
+- 
+- 📫 How to reach me? here, have a look!
+- 
+- My linkedin: https://www.linkedin.com/in/nori-kawamura-126309181/
+- My design portfolio: https://www.behance.net/NORIKAWAMURA?tracking_source=search_projects%7Cescritos
